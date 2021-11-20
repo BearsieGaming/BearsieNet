@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @BearsieGaming
+- 👀 I’m interested in proggraming and websites.
